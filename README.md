@@ -1,1 +1,1 @@
-# thebestscriptforadoptme
+[ROBLOX AUTO REPORT SCRIPT - GET PEOPLE WARNED OR 1 - 3 DAY BAN.txt](https://github.com/soul20323/thebestscriptforadoptme/files/10835602/ROBLOX.AUTO.REPORT.SCRIPT.-.GET.PEOPLE.WARNED.OR.1.-.3.DAY.BAN.txt)
